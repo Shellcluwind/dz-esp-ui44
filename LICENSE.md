@@ -1,4 +1,4 @@
-
+dayz esp custom Scripts: zombie ignore & instant night vision is the best dayz esp scripts, featuring zombie ignore and instant night vision. Safe, undetected, and perfect for
 
 
 
